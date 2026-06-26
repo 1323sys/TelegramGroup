@@ -56,6 +56,7 @@
 | 名字       | 链接                                                                 | 功能描述                                   |
 | :--------- | :------------------------------------------------------------------: | :---------------------------------------- |
 |景福宫高端商务|[https://t.me/+7hOI03rX7YVmOWVl](https://t.me/+7hOI03rX7YVmOWVl)|真实性不清楚，请勿轻信上当|
+|百乐门cos高端外围| https://tt8x10.atoms.world/( https://tt8x10.atoms.world/)| 自行了解|
 | 反差 | [https://t.me/+F53z4y6QyXMxNDg8](https://t.me/+F53z4y6QyXMxNDg8)|  骗子(Scammer)    |
 | 少萝 | [https://t.me/+DmUrNNfNpPIxY2Rl](https://t.me/+DmUrNNfNpPIxY2Rl)|  骗子(Scammer)    |
 | 女主播 | [https://t.me/+p-1a-TJyFhc4NWE0](https://t.me/+p-1a-TJyFhc4NWE0)|  骗子(Scammer)    |
